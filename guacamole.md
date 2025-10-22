@@ -2,6 +2,7 @@
 ## Ingredients
 * 2 Avocados
 * Garlic Powder
-* Maggi 
+* Maggi
+* lime
 ## Instructions
 * Mash avocados
